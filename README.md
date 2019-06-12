@@ -1,1 +1,1 @@
-Pahila ghas devala
+पहिला घास देवाला
