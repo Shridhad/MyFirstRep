@@ -1,0 +1,1 @@
+Pahila khas devala
