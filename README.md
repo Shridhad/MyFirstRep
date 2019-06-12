@@ -1,1 +1,1 @@
-Pahila khas devala
+Pahila ghas devala
